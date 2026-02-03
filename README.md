@@ -1,0 +1,1 @@
+# ilkokul-egitim-duzeltilmis
